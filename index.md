@@ -10,11 +10,11 @@ One day the - now a little older - dog bits the mom. She is not happy. And now m
 
 "Who is to blamed?" (for the dog hurting mom)
 
-Dad looks to the mom... and blame her for getting to close to the dog, but she cries back that she had no idea the dog was capable of biting her.
+Dad looks to the mom... and blame her for getting too close to the dog, but she cries back that she had no idea the dog was capable of biting her.
 
 Dad looks to the place where he bought the dog... the tell him it was a perfectly nice puppy - actually the best of bread.
 
-Dad looks to the son... and ask if the son could have done better, but he cries back he tried his best to train the dog to be nice, but he could not keep the other dogs away from the puppy.
+Dad looks to the son... and ask if the son could have done better, but he cries back he tried his best to train the dog to be nice, but he could not keep the puppy away from the other dogs.
 
 Finally dad looks to him self... and asks
 
@@ -30,9 +30,9 @@ He could have spent more time with his son and the dog, watch carefully as the d
 
 Dad looks to the dog and conclude it has changed. He takes the dog to a new place for stray dogs further away and tells the son that dog run away and he will never see it again.
 
-The son gets very upset and the daf calmly explains that the dog grew and learned and it had unintended consequences. The son thinks dad took the dog away and the dad admits, but also tells the son he would buy a new and better puppy - as long as he has the money for it.
+The son gets very upset and dad calmly explains; the dog grew and learned and it had unintended consequences. The son thinks dad took the dog away and dad admits, but also tells the son he would buy a new and better puppy - as long as he has the money for it.
 
-So he goes back to the place where he bought the puppy and asks for a return. The owner of place is not happy and dad the owner starts to argue. The argument continous into court where they both spend worth thousand of puppies to understand what is in the law about puppies.
+So he goes back to the place where he bought the puppy and asks for a return. The owner of place is not happy and dad starts to argue. The argument continous into court where they both spend worth thousand of puppies to understand what is in the law about puppies.
 
 The son eventually get a new puppy and is happy and dad only lost some money.
 
@@ -44,5 +44,5 @@ Mom is confused... she was hurt. What does this have to do with chains and store
 (to governments)
 Meanwhile a secret facility the puppy recieves some very specialized training and get the name "autonomous intelligent self learning killer device".
 
-(reacting from a mom)
+(reaction from a mom)
 Tossing something because it didnt work as expected is never the right thing to do... but taking responsibility is a lost art. 
